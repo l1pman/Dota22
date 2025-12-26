@@ -1,3 +1,1 @@
-# Dota22
-OGIN:MWlgYQKxx
-PASSWORD:hSFlta2h8aPMBjG
+⁡⁢yalpysb55    dxuqfVl5KPjNmH3q
